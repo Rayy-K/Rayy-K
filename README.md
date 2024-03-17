@@ -1,0 +1,4 @@
+- 👋 Hello! I’m @Rayy-K, thanks for stopping by!
+- 👀 I’m interested in movies, games and learning new skills!
+- 🌱 I’m currently learning web design and how to create your own website from scratch!
+- 😄 Pronouns: He/Him
